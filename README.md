@@ -1,0 +1,1 @@
+It was a hard practice at my univesity. I was really limitted at time and I didn't wanna google the solution. So here's my code. I highly do not recommend you to look at it, becauese it will probably cause some emotional damage.
